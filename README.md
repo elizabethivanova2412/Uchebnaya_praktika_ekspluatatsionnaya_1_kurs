@@ -1,1 +1,1 @@
-# Uchebnaya_praktika_-ekspluatatsionnaya-_1_kurs
+# Uchebnaya_praktika_(ekspluatatsionnaya)_1_kurs
